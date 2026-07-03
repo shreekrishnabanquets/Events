@@ -63,7 +63,7 @@ Entertainment artists
 Photography & Video
 
 
-### [**BIRTHDAY PARTIES**](https://www.shreekrishnabanquets.com/birthday-parties/)
+### [**BIRTHDAY PARTIES**](https://www.shreekrishnabanquets.com/birthday-party-hall-in-nagpur/)
 
 Looking for a fun birthday party venue in Nagpur? Whether it is a lively kids' party or a milestone birthday for an adult, we have you covered. Our team adds a personal touch to make the day full of joy.
 
